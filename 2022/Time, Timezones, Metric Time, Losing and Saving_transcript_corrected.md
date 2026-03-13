@@ -1,0 +1,340 @@
+[Speaker 1] [00:00] Yeah. I mean, it's brutal where, like, everyone else on the call just thinks you're crazy because you're talking about people sounding garbled when, you
+[Speaker 2] [00:08] know, as
+[Speaker 1] [00:08] far as I can tell, everyone sounds fine.
+[Speaker 2] [00:10] Everyone sounds fine. And I thought especially with Andre, week before last where I mean, obviously, it's such a weighty subject. It was really just, and we were having him, you know, stand on his head and everything to sound less garbled when I think he was, like
+[Speaker 1] [00:23] Right. Turn the Wi-Fi off. Turn it off. Right.
+[Speaker 2] [00:27] I know. The we, so we have actually to revisit just a brief old favourite. Have you been watching any of the dropout? We've talked a little about this.
+[Speaker 1] [00:38] No. No. No. I know I need to, but I have not.
+[Speaker 2] [00:40] God, it's so good. It's so good. I is so good. And I know parts of it are fictionalized, but they have been fictionalized so deliciously and so plausibly that it's just it's great. You've got to watch the dropout.
+[Speaker 2] [00:55] But the dropout is on Hulu. Hulu has a lot of problems. And much to my and my 14-year-old who whom I'm watching the dropouts chagrin, many of the Hulu problems can be solved by power cycling television. Yeah. Exactly.
+[Speaker 2] [01:12] And so and, of course, in the modern day, turning the television off does not power cycle the television. That mere way, like, turns off the screen. Right? Because it's like No.
+[Speaker 1] [01:23] Right. You have to go to the corner to the pole. Totally. Totally.
+[Speaker 2] [01:27] Exactly. So and, of course, you do this and then and, it's its it's kinda disgusting that all this works. Anyway, I wish you had the power cycle so many things. I'm I'm embarrassed. We haven't arrived yet.
+[Speaker 1] [01:38] No. No. I mean, I I I've even got it worse with the unforgiving 4-year-old, you know, when the audio cuts out from Netflix inexplicably, and you're like, let me just go to the breaker to turn off the TV. Not a lot of forgiveness there.
+[Speaker 2] [01:51] But what are we teaching our children? We're teaching our children to reboot it. We're not teaching our children to debug it because I can't. It's super
+[Speaker 1] [01:57] Yeah. Disturbing lessons.
+[Speaker 2] [01:59] Disturbing lessons. But so we mean, like with many things DST, we got on this when we were very hot on this subject. And now and now, like, time has faded. You're like, oh, what's that a couple of weeks ago? Well, right.
+[Speaker 2] [02:17] But I think we got here because I was, having a hard time waking up my teenagers post DST. So daylight savings time started, what, 2 weeks ago now in the US. And in 2,007, daylight savings time was moved to start earlier and end later, which if you are a parent of children, I think this is I think this is brutal. I think the week ago, where it was, 2 weeks ago, I think that's the hardest week of the year for a parent. But, Adam, do you not agree with that?
+[Speaker 2] [02:49] Did you have a hard time waking your kids up?
+[Speaker 1] [02:52] No. I mean, I did have a hard time, I mean, just getting our act together for, for t ball and then for high school the next day, yes, hard. But I when I saw the, the know, legislation passed in the senate, I got excited not because I am a DST fan or a standard time fan, but just a, you know, pick 1 and stick with Pick
+[Speaker 2] [03:14] 1 and stick with the fan. Okay. So your view on this is just like, I want to stop changing every year. That's right. And I am willing for the sun to get up at basically, like, 9 in the morning, in exchange for not having to change time?
+[Speaker 1] [03:29] Yeah. Pretty much. And I guess I value afternoon, evening suns. I always find, like, the winter to be pretty bleak. Like, I remember many times, like, you know, stomping the home on, public transit, you know, not that late in the evening and having a field pitch blackout.
+[Speaker 1] [03:46] So yeah.
+[Speaker 2] [03:46] Okay. But now See, I am
+[Speaker 1] [03:48] a DST fan.
+[Speaker 2] [03:49] You are. You're a DST maximalist. I mean, it, but it's going to be I mean, it's one thing you'd be like, oh, you know, I was never so into mornings to begin with, so it'll be fine. But, like, this is going to be like, the sun will not get out. Even where we are, we're not that far north.
+[Speaker 2] [04:02] So the San Francisco area, whatever word, 37 degrees, whatever it is. I mean, the sun won't get up until 8:30 in the morning on I mean, that is
+[Speaker 1] [04:09] No. I no. Furthermore, I I I'm I get it, and I'm with it. And, I think it might have been Tom Lyon actually who I see here on the call who had tweeted out something like, hey, didn't we try this in the seventies? And they tried it for 1 year and then everyone lost their minds and got sick.
+[Speaker 1] [04:22] Yeah. And I could clearly imagine how that's happening. Like, a bunch of DST fans are turned into seasonal effective.
+[Speaker 2] [04:32] Well, and so I am half convinced or maybe even 3 quarters convinced that most of the country thinks that daylight savings time creates daylight.
+[Speaker 1] [04:43] Okay. That's
+[Speaker 2] [04:44] I think that people are thinking like, no. Like, the legislation that the senate is considering is, should we have year round summer? That is what we're actually considering. And I think
+[Speaker 1] [04:54] Should we do the opposite to fight global warming? I don't know.
+[Speaker 2] [04:57] I think it would be lovely to have the sunset at 8:30 PM on Christmas day. And it's like, that's not what it is. That's not where we are on the sphere, folks. I mean, I I I so that I find, I don't think people are kinda, like, thinking it through. That's just what's driving me nuts.
+[Speaker 1] [05:15] That's that seems like I count myself among them.
+[Speaker 3] [05:18] That seems like the only explanation as to why not go for standard time. Right, is this idea that you're creating daylight. Like, that I don't understand. Unless it's just like a desire to be different from the rest of the world. Why not just go for standard time?
+[Speaker 2] [05:35] Right. Exactly. Because what you're basically saying is, look, when time zones were created, it was just like an off by one ear. They got everything, and it's like, I don't really buy that, you know. I don't so
+[Speaker 1] [05:46] And I'm with you also, like, that solar noon is at 1. Like, I get it.
+[Speaker 2] [05:50] I'm not I'm not
+[Speaker 1] [05:50] that into that. That's fine.
+[Speaker 2] [05:52] So okay. So and I like to I get it. Like, changing it kinda sucks. I think that standard time and I get that, you know, standard time the knock on standard time is that in northern latitudes, the sun is going to get up, like, hella early. I mean, it is going to be a very, very early sunrise.
+[Speaker 2] [06:09] Right? It'll be a whatever it'll be. I think so. Right now, the sun gets up at, like, 5:30 in the morning where we are on the summer solstice. So, okay, at 4:30 AM sunrise, I'm with you.
+[Speaker 2] [06:18] I kinda think that, like, shifting the clocks is not a bad compromise, unfortunately. Hold on. I know.
+[Speaker 1] [06:28] I mean, but even just like the, you know, from the software perspective. Like, how nightmarish is daylight savings time? I think it's crazy.
+[Speaker 2] [06:40] Okay. But from the software perspectives, aren't we aren't the best change from the software perspective no change? Isn't I mean, we did this because and I would actually love to hear from people who are on the front lines in, 2007 when DST was the DST changes were deployed? Because I know that broke a lot of shit. And I feel like I was kinda off the front lines at that point.
+[Speaker 2] [07:04] I think you and I really had to deal with that.
+[Speaker 1] [07:07] No. We both were sort of, like, glad it's not me, I think, on this. In that, all this antique software that, isn't being updated or whatever suddenly needs to be updated if anyone's running it anywhere, you know, or else you're you're manually changing the time or whatever.
+[Speaker 2] [07:26] Wait. So I think the DST was worse than y two k. So I do think it's worth talking a little bit about y two k because I think that that was a because Adam, were you at Sun for no. You were not at Sun for y two k.
+[Speaker 1] [07:37] No. No. No. No. No.
+[Speaker 1] [07:37] I was, so I was still in college for y two k. And I have to say from the perspective of a computer science student who thought he knew everything like many computer science students do. I thought, you know, what's the big deal here? Like, 2038 is going to be a big deal for sure. And I still think
+[Speaker 2] [07:53] that Yes.
+[Speaker 1] [07:54] But, but I don't know. I was like, how much software is storing, dates in 2 digit decimal? And, of course, the answer is
+[Speaker 2] [08:04] a lot. A decent amount. Although, you know, our problems are y two k problems. Our most acute y two k problem was not a 2 digit problem. It was a leap year problem.
+[Speaker 1] [08:17] Oh, it miscalculated the staff of Ra kind of like, you know, add 1, subtract 1, unless it's this.
+[Speaker 2] [08:26] You know, it's not if it is not the staff of raw. I didn't know if you is that it is that complicated. But the so the rule is that a have a leap year. I mean, and the fundamental fucking problem is that we I the amount of time it takes our little sphere to take a lap around the sun is not an even multiple of the number of laps we take and the number of times we this sphere spins around, which is very problematic. It is really, really, really, really annoying.
+[Speaker 3] [08:57] Okay. But it's worse than that, Brian. If it's not constant either.
+[Speaker 2] [09:01] Okay. We leap seconds? We are coming for you later, leap seconds. So don't worry. We are coming for leap seconds.
+[Speaker 2] [09:07] But the that's right. It's not constant either. But so this is a very, like, this is a very pesky and annoying problem. Every 4 years, we inject a day to we inject February 29th to kinda make up for it. But as it turns out, that's not totally correct.
+[Speaker 2] [09:23] And what it's its the that's the Julian calendar. The Gregorian calendar is the observation that, like, no. No. That's not totally correct. And it's almost correct, but not quite correct.
+[Speaker 2] [09:33] And every 100 years, you've got to take that day back. So every 4 years is a leap year, except for every 100, which is not a leap year. Okay? Except for every 400, which is a leap year. So 1612,021,000 are leap years.
+[Speaker 2] [09:52] They have February 29th. And we had a lot of software that was keyed off of 1900. So it incorrectly said that 2,000 was not a leap year. Which I don't know. Is that surprising?
+[Speaker 2] [10:07] I'm not sure if that I was surprising to me that, like, how would you encode the kind of, like, the like, the first rule and then, like, the kinda, like, the subtle rule, but then not the other the third.
+[Speaker 1] [10:18] You're like, blah blah blah. I'm sure that's enough. So what
+[Speaker 2] [10:21] what is this document keep on going? It's like, okay. Wow. I got it's like, no. No.
+[Speaker 2] [10:25] There was another page. Did you have to go to like, what do you need another page?
+[Speaker 1] [10:29] Whatever. Whatever. It's quitting time.
+[Speaker 2] [10:31] Right. It's its like you're getting out of the exam. Like, what did you get for problem 6? Like, there wasn't a problem 6. Like, no.
+[Speaker 2] [10:38] That's a little bit. That's right. So yeah. And so in particular, have you ever used the at command?
+[Speaker 1] [10:46] Yeah. For sure.
+[Speaker 2] [10:47] Okay. Someone was asking earlier, like, what's the oldest piece of software you use? Do you actually wait a minute? Do you actually use the at command?
+[Speaker 1] [10:53] No. Have I used it?
+[Speaker 2] [10:54] Okay. That's better. Do I use it?
+[Speaker 1] [10:57] No. Because I feel like I know enough to get directions away from it. Like, I feel like every document, like, describing at is, like, you should not use this. Like, this is unsafe at any speed. If you're considering it, consider something different.
+[Speaker 1] [11:14] And I've read on and then not used it in Niagara. I'm like, oh, what's this?
+[Speaker 2] [11:18] Well, that you are you're very wise because the at command in particular, the at command, like, tries to be friendly in some strange ways. So at is a command that allows you to run a job. They say at a specific time, but it's like, it's not a specific time because you've got all these ways of expressing time relatively. So you can say, I would like to run this a month from now. It's like, well, alright.
+[Speaker 2] [11:40] What does a month from now mean if you're on the 31st day of a month? Like, what does that mean? What you are a month from now, is that on the there is no 31st day of the next or if there is no 31st day of the next month. If it's January, what does that mean for February? And in particular, we had a y two k problem that if the the the y two k bug only service in one command, the at command, if you use this weird plus what n month syntax, and you ran that on the 29th day of one of the days in 1999 so January 29th, February not from 29th.
+[Speaker 2] [12:26] There's a February 29th. March 29th, and so on. What are those 11 days? And your target day was February 29th 2000, which did exist because it is a leap year. It would run it on March 1st.
+[Speaker 2] [12:42] Like, that was the bug.
+[Speaker 1] [12:45] Like, irrespective of when you like, whether it was November or
+[Speaker 2] [12:49] No. No. No. No. No.
+[Speaker 2] [12:50] No. No. That that might be a legitimate buck. This is like you are on it is only if you have the intent of running it on so in other words, if you have to be running this on December 29th, running at plus 2 months to denote like, I want to run this in 2 months, your at job. Instead of running on the correct date, February 29th, it would run it on March 1st.
+[Speaker 2] [13:17] Gotcha. Gotcha. Which to me, I tried to explain, this feels I mean, does that feel likely for someone to hit that?
+[Speaker 1] [13:29] Pretty remote.
+[Speaker 2] [13:32] Yes. I would say exceedingly remote. I'm like, you got a use this, like, weird syntax that you've got to have that has, like, already semantics that are, like, murky. And as you say, like, I'm already got the sense that I shouldn't be using at all, you're using it at the end of the month, which you should be doing. You're doing it on the 29th day, a day that doesn't exist in all months.
+[Speaker 2] [13:55] You are targeting this in this so anyway, I thought it was super weird. But everyone was so fucking terrified of y two k that we destroyed all the CDs we've made for Solar 7 over this. That's
+[Speaker 1] [14:10] and this was the release that you were the
+[Speaker 2] [14:12] the technical Yes. Right. Exactly. So I feel it is, like, my job to inform the rational decision, which I did not perform. I, like, I I I failed because I'm like I and I have this, like, long email explaining just how impossible it is for effectively someone.
+[Speaker 2] [14:32] And because, again, you have to run this on one of these 11 dates in 1999. And we were already at that point, like, past a couple of them. So it's like, they're only, like, the 4 days left that you have to run another brand-new album. I lost they decided they were too scared, and they destroyed all the CDs. Several $100,000 for the CDs were destroyed, and then we fixed the bug, and they repressed them.
+[Speaker 2] [14:57] So that is and so that is the peril I think of, like, you sir and that's not with the calendar changing. That is just, and I think that we only saw this because people were so dialled in the y two k, which then effectively fizzled. I think when the calendar starts changing, and I'm I'm hoping that somebody's got some, Yeah. Matt, I know you can't Jason, just hand up. Matt, I don't Matt, do you have a DST story?
+[Speaker 2] [15:22] I'm sure there I know there were a bunch of them out there.
+[Speaker 4] [15:28] I do. I also actually have a y two k
+[Speaker 2] [15:31] Oh, good. Go for it.
+[Speaker 4] [15:34] So, I'll do the y two k anecdote first. In January 2000, I was, emailing back and forth with someone who, for whatever reason, was using the Elm email client. And, I I I don't know if he was even using the latest version of Elm at that time, or he might have been using the version that was available on his shell account at his Internet service provider. But, this email client would, format the date header with a 2 digit year. And the way that it did it was by subtracting 1900 from the actual year.
+[Speaker 4] [16:20] So when year 2000 came around, I got to see year 100 in the date header of this guy's messages.
+[Speaker 2] [16:30] And was this discovered before y two k, or was this only on January 1, 2000? That this is
+[Speaker 4] [16:37] I only found out about well, I I I never researched. I never looked at, like, well, the being 2,000. I don't know if Elm had a bug tracker, but I didn't look at mailing list archives or anything. I just observed it and said, well, if this is the worst that y two k brings us, we did pretty well.
+[Speaker 2] [16:56] That's an actual y two k bug in the wild post 2,000, which I feel is like, that's pretty hard. That's that's
+[Speaker 5] [17:01] pretty hard.
+[Speaker 4] [17:02] Like I said, he might have he or his ISP might have been using an old version of the client to begin with. Now I do want to research that bug and see. I wonder if they've still got archives of old I'm sure somebody still has archives of old versions of Elm, and we could probably we could if is I really wanted to, I could bisect and see when, you know, when the bug was fixed if it ever was.
+[Speaker 2] [17:30] I will tell you that Elm y two k problem definitely has his. You could definitely see this problem and a lot of folks hitting it. So yeah.
+[Speaker 4] [17:37] Now, do you want me to go ahead and get into my, DST
+[Speaker 2] [17:42] story? Please. Yeah. Yeah. Definitely.
+[Speaker 4] [17:44] Okay. So, this was a few years ago, so I don't remember all the details now. I remember fixing it late on the Saturday night. Well, I remember that looking at it at least and and and, you know, working around it late on the Saturday night that, that we have transitioned off of Daylight Saving Time. So, I was responded I had developed a, a web application that, connected to a third party service, on behalf of the user and authenticated with that service using OAuth.
+[Speaker 4] [18:21] And we had a cron job that would periodically connect to, into the service to pull new data. And, as you may know, OAuth, at least in some implementations, has an access token and a refresh token where the access token expires something like, every hour and the refresh token lasts much longer. And when you when the access token expires, you have to use the refresh token to get a new access token. Well, so, the logic I had implemented for finding out when the access token expired, went like this. I've when whenever we got an access token, the OAuth server would return how many seconds until the token expired.
+[Speaker 4] [19:16] And then I would yeah. My code would add that to the current time and then store it store the expiration time in a table in a MySQL database. And the MySQL in MySQL, the date time type is basically year, month, day, hour, minute, second, no time zone. And I was using the Python date time type to add the duration in seconds to the current time. And I was using the version of the Python date time type that also had no time zone.
+[Speaker 4] [19:58] So, Saturday night, we're getting ready to get go off of daylight saving time. And, that that that's, I mean, that's the time when 1 am occurs twice. Right? So, because you, you fall back an hour. So, so, yeah, the Cron job is getting new access tokens, and let's say that the access to you know, that the time is, you know, 12:53 AM when we get access.
+[Speaker 4] [20:32] Yeah. 12:50 and oh, and I was and all of this was in I had our servers set to eastern time, so all of it I was doing all the in local time just because, well, I started doing that when I was 21 and didn't know better. Youthful discretion. Yes. Got, tying back in fact to the theme of last week.
+[Speaker 2] [20:56] Yeah. Right. Right.
+[Speaker 4] [20:59] So, so yeah. So let's say it's 12:53 AM, just to pick a random time. And when we're, yeah, when we're pulling a new access token, we add an hour to that. Yeah. Let's say that access token expires in an hour.
+[Speaker 4] [21:19] We add that, and then, yep, store the expiration time as 153 AM in the database. And then we go off of daylight I don't remember the exact detail, but you can probably see where I'm going with this. Did you roll back? Yeah. It is Yeah.
+[Speaker 2] [21:41] Did folks end up having to rough? I mean, so what was the
+[Speaker 4] [21:44] So well so I started getting I think I started getting emails about internal about errors in the grant job because it didn't know that it was supposed to pull a new access token. So I think I think my workaround, my immediate workaround was to just, force, you know, manipulate the database so it would force a, a refresh. But, yeah. I'd probably the the the way to avoid this whole thing would have just been to work with Unix time stamps all the way through.
+[Speaker 2] [22:21] Yeah. You really don't want to store anything in local time. The local time is a huge problem. UTC because you UTC,
+[Speaker 4] [22:29] you think UTC would have been fine. Right.
+[Speaker 2] [22:32] UTC would have been fine, until we get to leave nuggets, which we can
+[Speaker 4] [22:36] Ah, okay. I will look forward to hearing all about that because I have not been bitten by that yet.
+[Speaker 2] [22:44] Oh, god. I will so before you leave seconds, I'd be curious if is anyone because it sounds like the now the issue that you hit was a just a DSP the change from standard time to daylight time that that happens every year and storing things in local time, As you say, you put in indiscretion. I would be curious if folks because the thing that was, I think, was really disruptive was the actual change to when we went on daylight savings time and went off daylight savings time in, I believe, 2007. Right? I mean, it was it the that was the what, made that we changed that time, and that caused a lot of software to break, because now you got software that is actually in the wrong time zone for several weeks if it's not upgraded.
+[Speaker 2] [23:29] Yeah. Jason, go ahead. I know I got your hand up for a long time.
+[Speaker 1] [23:31] So a couple of
+[Speaker 6] [23:32] things with that, though, I was trying to think because, first, you know, there's still 2 states that don't follow daylight savings time period already. Arizona and Hawaii. But even before that, one I'm quite familiar with, Indiana didn't follow daylight savings times for years. But in the 2000, they started following it. So you had a situation before they changed you know, shifted the thing around, you know, nationwide where you had now a state, you know, where before, you know, never followed due date savings time.
+[Speaker 6] [24:03] Now it did. So I'd imagine there'd have to be bugs just from that because
+[Speaker 2] [24:08] And, Jason, did you grow up in Indiana? Did you spend time in Indiana? But it because Indiana, if I recall correctly, was, like, county by county. Well spend the time versus these 2 types.
+[Speaker 6] [24:18] To work. So it's, like, in the time zone database, yeah, you have, like, Crawfordville and all this. That's where, like, yeah, if you want to compute time, like, back in, like, you know, back to, like, say, 1920 or 1860, you know, then but for you know, since computers were a thing, you know, basically, most of the state this is also where it gets interesting. So I grew up in, it's Lake County, which is Northwestern most county, which is, you know, where Gary is. It's by Chicago.
+[Speaker 6] [24:48] So where I grew up as well as the county next to mine, we're actually on central time and did follow day daylight savings time. And so half the year, we were on the same time as the rest of the state, and half the year, we were an hour behind, which also made things interesting if you like, I have, an aunt that still lives in Indianapolis that actually the rest of my family lives there now. But, yeah. So for half the year, you know, they're hour ahead. Half the year, they weren't.
+[Speaker 6] [25:14] But, you know, when they switched to just following daylight savings time, you know, I just have to wonder if that didn't cause problems.
+[Speaker 2] [25:22] Right. The That
+[Speaker 6] [25:23] was before that.
+[Speaker 2] [25:25] And because Indiana is now all central. Is that I think that that's like, is it all central time now? Or is it or does it still divide the state? I do remember, like
+[Speaker 6] [25:35] Sorry. I Indiana is like, well, aside from, and I think there are also a couple counties, like, in the southern part, but now it's all eastern. Well, all except for the ones that we're always following central. Just because, you know, like, you know, all our TV stations came out of Chicago. You know, our radio stations came out Chicago.
+[Speaker 6] [25:55] So if we're always an hour off, you know, a lot of people would commute to Chicago. If you Got
+[Speaker 2] [26:01] it. Right.
+[Speaker 1] [26:01] So it's its all eastern except for in places where it's not.
+[Speaker 2] [26:04] Well, basically, it's like a little bit by Chicago where I think there's, you
+[Speaker 6] [26:08] know, a couple in Southern Indiana I've never been to. And so but, yeah, the biggest thing actually just kind of funny footnote to that is when they did flip, as it turns out, there were a bunch of actually, I guess some kids actually started a little for a couple of years that go around to people's houses to change the clocks for them because they'd never had to do it before.
+[Speaker 2] [26:30] That's great. And, Adam, do you remember I mean, Jason mentioned the time zone database. And you just remember us doing, like, our loud readings of this thing, the one letter or not.
+[Speaker 7] [26:40] Do you
+[Speaker 2] [26:41] remember this?
+[Speaker 1] [26:41] I remember being fascinated about there was about a month, when we were working on Fish works, the the storage product that's on the Brian and I worked on that I think it captivated us all for, for like at least a month because there was the, you know, there were, there was this period. I think I learned about it more in, reading that book about the metric system. How, the what's the I don't, I remember the subtitle better than the primary title.
+[Speaker 2] [27:07] Oh, whatever happened to the metric system.
+[Speaker 7] [27:09] That's right.
+[Speaker 1] [27:10] How America lost its feet. Wait, kept its feet.
+[Speaker 2] [27:13] Hold on. Yes. Hold on. Wait a minute.
+[Speaker 1] [27:15] What did we do again? Right. So, so I remember that book describing, you know, a bunch of standardization where, where the where noon was, different for every railway station. And so you had these micro, time zones effectively. But I remember just pouring through the time zone database, you know, seeing, you know, this island was, you know, you know, 12 minutes ahead of the other island and, just captivated by
+[Speaker 2] [27:43] that. Well, there's so much history. It's like, if you like to read the encyclopedia as a kid I definitely did. There's so much history in the time zone database. It's really remarkable.
+[Speaker 3] [27:52] This But it's and it's an encoding also of sort of geopolitics as well.
+[Speaker 4] [27:57] Exactly. Exactly.
+[Speaker 3] [27:58] I Ireland decides that they no longer want to be, you know, allied with this great nation. They want to switch to that great nation. So they need to decide which side of the international date line they are. It is fascinating.
+[Speaker 2] [28:11] It is really though. It's a very good point of it. And the book that Adam is referring to is what you read this on Rick's recommendation. Right?
+[Speaker 1] [28:18] That's right. Yeah.
+[Speaker 2] [28:18] Yeah. Yeah. So our colleague, Rick Alter, recommended this. This is like you know, you have these books that kind of spread through a group like wildfire that kinda everyone reads, kinda becomes canon. I felt like that way with this book, Adam.
+[Speaker 2] [28:31] I think a bunch of us read it. I love that book. That book was so good. I mean, relatively recent book. Did that book so it's its talking about not just, the metric system, but the kind of standardization of all weights and measures and units of time.
+[Speaker 2] [28:48] Did that so in particular, that book talks a lot about the fixed calendar, the idea of a, of a 13-month calendar where each month contains 4 weeks. And then that all that adds up to 364. So you have to inject blank days, one blank day, 3 quarters of the time, 2 blank days, roughly a quarter of the time. And then I mean, Adam, did that I didn't.
+[Speaker 1] [29:15] I love that.
+[Speaker 2] [29:16] I there were a
+[Speaker 1] [29:17] couple of different proposals for metric for different calendars that were different levels of standard, whether it's 4 weeks or 30 days. And all of them had this like Slough to deal with, which I really enjoyed. And most of them were like, make it a holiday. Like, make these, like, days beyond time, which I also really enjoyed. That that was their, like, well, what are you going to do about it?
+[Speaker 1] [29:42] Like, give people the day off.
+[Speaker 2] [29:44] Okay. So and did you start to advocate that to others? I felt like I was like, this idea is, like, zany, but I I I've started I get kind of, like, start I floated it by the I floated it by by by the kids. And, it's in I mean, they definitely you sound bonkers when you're advocating a 13th month, but it's kind of interesting. I think that the problem is that, like, we're under it means that, like, if your birthday's on a Thursday, your birthday's on a Thursday for all eternity.
+[Speaker 1] [30:15] I hadn't thought about that part. Or if you're, like, in this Inters lip period in a, you know, land without dates that you're always in this, like, holiday season.
+[Speaker 2] [30:26] Right. You're all the the you are and now, like, if you are someone who's like, Thanksgiving sometimes falls on my birthday, but sometimes it doesn't as it does with my wife, Bridget. It's like, now you're either gonna always get nailed or always not get nailed. And I don't know. I I I think that that it is intriguing.
+[Speaker 2] [30:43] They do you remember why they didn't end up adopting it?
+[Speaker 1] [30:48] No. I don't remember there being, like, a particular reason.
+[Speaker 2] [30:51] Well, it's like I feel like this is so telling. This is, like, such a software analog because there are ended up being 2 different schemes that are basically this similar. One was dividing the the the calendar into 4 quartiles, and, each quartile had so 30, 30, and 31 days. So each one had 91 days. And the other proposal added this 13th month, but they both have the same property of injecting these blank days and so on.
+[Speaker 2] [31:23] And these two groups of people, of course, hated one another's guts. And so everyone is spending time, like, slagging on the other person's proposal, and ultimately, like, is not good at least, and we're gonna just keep the calendar the way
+[Speaker 6] [31:39] it is. Didn't Kodak adopt that? I mean, I know it's more business, which isn't quite the same, but, like, is there kids? But they then they thought they did, like, a 13-month calendar.
+[Speaker 2] [31:50] So yes. Very good memory, Jason. Eastman Kodak. I just feel like it was must have been so delightfully weird to be, like, a 19th century billionaire effectively because you get to pick all these strange causes. And Eastman, George Eastman was apparently a big, like, calendar reformist.
+[Speaker 2] [32:10] So he yes. He wanted to impose a 13-month counter. And, apparently, this is like some companies still have 13 months or do 13 units per year according to that book anyway. Aaron, sorry. You had your hand up.
+[Speaker 5] [32:26] Yeah. So there were 2 bugs I wanted to bring up. The first is there are a lot of things that go wrong during the second 2 o'clock in the morning. I ran across a bug where we had a system that was doing builds automatically, and the whole process took about 4 hours and would start at midnight. And it turns out if there's 2, 2 o'clock in the morning, then have some parts of your build happening on Linux and some parts of your build happening on Windows, Corwin's CMake will think that things are in the past that are actually from the future Oh, wow.
+[Speaker 5] [33:00] Because it's the second 2 o'clock in the morning, and it thinks that the stuff that was already built wasn't actual was actually from the future because it was done at 159 of the previous 2 o'clock in the morning.
+[Speaker 2] [33:12] Okay. Alright. This
+[Speaker 1] [33:14] this is exactly, Brian, why I think, like, I'm not for DST or standard time, but just one time. Because anytime I was, like, programming Iron to do nightly builds of whatever fashion, I just, like, well, you know, I don't want to do it at midnight because my colleague might still be awake and doing stuff. And I don't want to get anywhere near 2 AM because then I'll run a foul of this stuff. So what am I'm gonna start building it like and then if you start pushing it to 3 or 4 AM, then you start bumping into your colleagues on the East Coast who might be wanting to use it anyway.
+[Speaker 2] [33:45] So you don't like the fact that they give us
+[Speaker 5] [33:48] built and released binaries that we had to deal with for about 6 months because there were binaries that were released in an inconsistent state into the world.
+[Speaker 7] [33:57] Oh, man.
+[Speaker 2] [33:58] Okay. So, Aaron, I how many years did you debug the same problem? You should be like, goddamn it. I feel like I have debugged this problem before. Oh, wait a minute.
+[Speaker 2] [34:06] A year ago, I debugged this problem. I feel like I would, it would take me, like, 3 or 4 years of debugging the same problem before I retained it.
+[Speaker 5] [34:13] So what we did was the second time this happened to us, a year after the first, we added new rule to the build system that it would not build anything at 2 o'clock. Like, it didn't need to know what things or what days of the year. It was just like, you know what? 22 o'clock's a bad hour. Let's just not.
+[Speaker 2] [34:32] Okay. So this is Adam's approach. This is just like
+[Speaker 1] [34:34] That's right. That's would've waited us not to play.
+[Speaker 2] [34:36] Yeah. Hey. Hey, kid. Well Stay off at 2 AM. There's a
+[Speaker 3] [34:39] But this
+[Speaker 5] [34:40] is still my second favourite. It's alright. My favourite one was a bug that actually came from a contract I had, which was I ended up starting at a startup on leap day that had a standard language contract that said, your equity vests on the same date on the following year. Oh, no. So the day in which my equity would theoretically vest was not a day that actually existed.
+[Speaker 2] [35:10] And it
+[Speaker 5] [35:10] was just like, that's get you have to read those start up contracts.
+[Speaker 2] [35:15] Okay. I take it from your light tone that either the issue was resolved or the company went nowhere. Clearly, this did not you did not end up having to leave a life changing lot of money on the table because of this issue. Did you get it resolved? Or how did
+[Speaker 5] [35:27] it is it was resolved by the company not existing anymore.
+[Speaker 2] [35:30] It's the very clear I had to hunch that one, but that might be the answer. That's, yeah. That's pretty funny. Read that documentation. When I would, I don't know anyone born on February 29th, but I don't know if that like, I would love to know I surely, those people have an opinion of people born on February 29th.
+[Speaker 2] [35:48] And I could see it being kind of maybe it's a special thing, but maybe it's a shitty didn't think that 24 hours in a day was enough. So he devised, like, a 6-day work week and, 28 hours a day. Okay. So and now is he, so this is an interesting is he just going to ignore the sub and the fact that we're just gonna, like, I'm going to take the existing a 100 and 68 hours and just divide it differently into days that I have invented. Is that what he was doing?
+[Speaker 2] [36:27] Yeah. That's what the that's what the story was. Someone who worked there told me. I don't know if it's true or not, but it seemed fascinating. And he had weird hours of coming and going to the lab.
+[Speaker 2] [36:36] Well, that would actually make sense. You know, I mean, that was, like, I when I was actually first working for Sun with Jeff Bon wick, Barwick worked super strange hours. And I was working on, like, a 28-hour clock, and it was very difficult to at, like, 5 PM and leaving at, like, 8 AM. And I had a reverse commute, but I was turning my reverse commute into a non-reverse commute by commuting on basically the going the wrong direction at the wrong time. So I, I I I'm sympathetic with Ken Thompson's point of view, but I think you have to, like, unfortunately, have to yield to the, the sun on that one.
+[Speaker 2] [37:24] And, Suit, I want to get to you in a second. I on yielding, I'd say, I want to get to leap seconds here because I do feel we need, to so, Simeon, you'd mentioned that the unfortunately, it's not constant. That the Earth the the the speed of the Earth's rotation on its axis varies with time, and we've injected these things that the these leap seconds from time to time to keep so or noon at so or noon. I am are you I mean, I leave seconds, I think, are pointless. I really think leave seconds are a problem, but I would love to hear the if someone defend leave seconds.
+[Speaker 2] [38:02] Do you have an opinion one way or the other on leap seconds?
+[Speaker 3] [38:06] I guess a weak one. I mean, it kinda makes sense. You have a calendar that aligns with astronomical time. If you have slippage, then, you know, it becomes progressively more wrong.
+[Speaker 2] [38:20] Okay. But it becomes progressively more long over, like, 100 and 100 of years. And also So it's
+[Speaker 3] [38:26] it's just it's like someone else's problem, like
+[Speaker 2] [38:28] That's exactly what it is. Give someone else's well, it's like, hey. Look. Who left the astronomers in charge? Why aren't the astronomers making it our problem?
+[Speaker 2] [38:35] I mean, I like, look. It's a problem. But it's like, why does it have to be why does every software engineer have to deal with this problem? I don't I Yeah.
+[Speaker 3] [38:43] I guess that was all I wanted to mention is that Adam's in good company because, and maybe there's some Googlers on the call who can confirm this for me. But, a Googler friend of mine told me that Google has Mountain View time
+[Speaker 2] [38:57] That is.
+[Speaker 3] [38:58] Yep. Which is The Pacific time without leap seconds because it was like, fuck it. This is too hard. And, to me, it seems quite consistent with the sort of view that mountain views also the centre of the universe. So, you know, why not?
+[Speaker 2] [39:12] Yeah. I believe that is called it is called it was told to me as Google Standard Time, so I would love to hear. And I didn't realize that it was Pacific time minus the leap seconds. It is so does it do not respect DST, I would assume. I know that there's at least truth to this, because, Adam, I don't know if you've gotten our ex Googlers going on this subject.
+[Speaker 2] [39:34] But anytime anyone even, like, comes close to something having something other than UTC in a log, they're like, no. UTC only. I feel it's like it is it's like you want to roll out, you know, the OKRs and perf plans. I mean, they immediately, like, lunge at it. So it's yeah.
+[Speaker 2] [39:52] I Google it'd be, I did not realize they don't include leap seconds. I can understand that from a would so do you remember having this discussion with we had a coworker who, also was a leap second denier and, wanted to understand the source of leap seconds. It's under it's my understanding that we don't totally know all why the rate is changing, but a big part of it is title friction, I believe.
+[Speaker 3] [40:19] Yeah. And it is tends to also so the the need to introduce sleep seconds, is correlated also with seismic events. So, you know, the major, you know, tsunamis in, you know, in the Pacific has been there's been periods of lots of leap seconds and periods of quiet. Right. So clearly, something affects the rotation of the earth.
+[Speaker 3] [40:43] You know, if it is not really a rigid body. It's a fluid body. It wobbles. Right? So, yeah.
+[Speaker 3] [40:51] It's its def it's definitely a natural phenomenon.
+[Speaker 2] [40:55] It's a natural phenomenon.
+[Speaker 1] [40:55] I feel deeply ignorant here. So why are you so painful?
+[Speaker 2] [41:00] No. But you are okay. But you obviously you don't remember this lunchtime conversation that went on for weeks. This is where Keith wanted to blow up the moon. Don't you
+[Speaker 1] [41:08] remember this? Oh, I do remember Keith wanting to blow up the moon.
+[Speaker 2] [41:11] Yes. So Keith is like, we're going to blow up the moon. Yeah. And I actually still don't have, like, a totally straight answer on I don't you I remember you being like, well, I can't imagine there would be any side effects of that.
+[Speaker 4] [41:22] I mean,
+[Speaker 2] [41:22] that seems like a great answer.
+[Speaker 1] [41:23] That's right. Right. Full speed ahead. Let's ship it.
+[Speaker 2] [41:25] Full speed ahead. Let's ship it. Let's blow off the moon. I'm sure nothing relies on tides and, you know, anyway, let's figure it out. The but the then it was like, well, actually, if you blow up the moon, what does actually happen?
+[Speaker 2] [41:37] You don't remember this? We'm sure
+[Speaker 1] [41:39] you I do remember, for example, thinking that we could corner the market on, like, 25 hour watches and then and then detonate the moon and then make a killing, but that plan never came to fruition.
+[Speaker 5] [41:53] But those seconds do matter because, for example, systems like Spanner care about time stamps to a significant degree. So if you have one system inside a Google cluster that is on UTC instead of UTC 1, it's not actually going to be able to commit anything into Spanner because its clock skew is enough off that the entire rest of the system will disown it.
+[Speaker 2] [42:16] Yeah. I mean, they are then this way, Adam, I think that's the kind of answer to your question. I mean, they are actually really important. Furthermore, I mean, the in this differentiation between what UTC and UT1, it's it is really, problematic. And, Tom, I mean, it's something you've you've dealt with as well?
+[Speaker 7] [42:35] Yeah. Not too much, but, you know, that that was the prop the mistake early on in Unix was trying to track UTC, including the leap seconds and do that in the kernel. Whereas it should have just been a, you know, a constant timer off offset by user level code somewhere, and so that that screwed up all kinds of things.
+[Speaker 2] [42:56] Yeah.
+[Speaker 5] [42:58] And I would still argue it is the lesser of 2 evils because so most of the systems we use deal in cesium seconds, not geoseconds. So either you're going to have to keep adding seconds periodically or every single year, NIST is going to have to produce a new, here's the number of cesium atom decays in a second that we're gonna use this year, and that seems worse.
+[Speaker 7] [43:22] Yeah. But there should never have been a way to get the time without specifying a time zone, which becomes a user level presentation thing. All this kernel and middleware and stuff should have always run with just, you know, seconds since the epoch.
+[Speaker 2] [43:40] Seconds since the epoch. Yeah. Yeah. Agreed.
+[Speaker 5] [43:42] I assume even cesium seconds, not
+[Speaker 2] [43:44] geosecond. Yeah.
+[Speaker 7] [43:45] Yeah. There's no such thing as a geosecond. Right?
+[Speaker 3] [43:49] Yeah. And even the way that you arrive at what is the universal time in cesium seconds is, you know, it's kind of interesting. Its it is determined a month in arrears by averaging 400 atomic clocks adjusting for their altitude because of the, you know, gravitational well. You know, it's it this rabbit hole goes super deep. There are time nuts who love these things.
+[Speaker 7] [44:18] Well, there's a definite there's a hard definition of a second, but it's just impossible to measure it that way. Right?
+[Speaker 2] [44:25] I didn't realize that the gravitational wells were an issue. I mean, of course. I mean, why, of course, why would I think it would be as simple as measuring a cesium second?
+[Speaker 5] [44:35] It does get relatively complicated.
+[Speaker 7] [44:38] Oh, okay. And then this gets really complicated if you're maintaining GPS and trying to tell the satellites what time it is so they can tell everyone else what time it is.
+[Speaker 2] [44:48] Right. And that's where, like, relativistic differences come in. Right? I mean, the
+[Speaker 7] [44:51] the Right.
+[Speaker 2] [44:51] Right. Which is really get very mind-bending. So I I I personally think that the lesser two evils be to and we have been on a streak of not having leap seconds for a while, since, what, 2017? It's been it's been a couple of years since we've we've not had a leap second. So I don't know.
+[Speaker 2] [45:12] I was kind of optimistic that we were just kind of seeing the error of our collective ways, but I don't think that's it. I think we're going to see leap seconds.
+[Speaker 7] [45:19] I thought they were threatening to have a negative leap second at some point.
+[Speaker 2] [45:22] Okay. That I at some okay. That can we agree that negative seconds are out of bounds? That the Earth is either spinning up or slowing down, but it may not do both?
+[Speaker 7] [45:31] No. I don't know. It's due to seismic events, it might change.
+[Speaker 2] [45:36] I'm saying that I may be on team Blow Up the Moon if we is is
+[Speaker 1] [45:40] time zones go backwards.
+[Speaker 2] [45:42] If time starts going backwards, like, tell me more about the newsletter that I will also go subscribe to the blog if it is the blog for the newsletter. We actually did have a so the keeping time in a know, Tom mentioned kind of historic Unix. Key and keeping time in Unix is historically really complicated. Keeping time in system is complicated because you need to have a reliable oscillator. And the you we used the, the tick counter on UltraS park to, to count the the the time spent spooked.
+[Speaker 2] [46:16] In order to do that, we would have to know the number of ticks per second. In order to do that, we actually like I said, written the code for this. The most reliable thing in the system was actually the TOD part. And so we would, in a very tight loop on boot, watch the TOD part roll over for watch basically 2 boundaries in seconds, and we would measure it. And that would be accurate enough for NTP to be able to that was in within the 64 parts per million that NTP needs.
+[Speaker 2] [46:43] Well, no, that was very funny. So we had a we replaced they made a, a replacement of a different TOD part. And this TOD part, if you queried it too frequently, it would freak out and the seconds would roll over. So I get this call from the manufacturing facility, and godly knows what route they did. I mean, they found the right person at the company.
+[Speaker 2] [47:06] They're like, hey. We understand that you could help us look at a time problem. Like, yeah. Sure. I yeah.
+[Speaker 2] [47:10] I'm the right person. Like, what's going on? And they're like, well, could you just log in to the system? I'm like, sure. I log in to the system and I run the date command, and it's like the year 23/75.
+[Speaker 2] [47:21] And I'm like, is it the 24th century? Like, what is going on this box? Like, yeah, we're hoping you could tell us because time is passing very, very quickly. So then you run the date command again, and, like, 18 years have passed in a second. And you're like, what is going on in this alternate universe?
+[Speaker 2] [47:39] And, of course, what's going on is that we early in boot, we hit this thing hard a couple of times. The seconds rolled over, and we concluded because my code had no, like, check on this. Like, wow. This is a very slow CPU. This is like a 3 hertz CPU.
+[Speaker 2] [47:57] And therefore, time is now running at, like, a 167000000 times faster than it should be.
+[Speaker 7] [48:05] I can tell you I wanna mention, you know, IBM has had the virtual machine system for a long time. But one time, they hacked it to do virtual time so they could run benchmarks, assuming things were running Woah. Different speeds. Very clever.
+[Speaker 2] [48:22] Of course. I mean, leave it on IBM for both, like, both invent virtual machines and then also invent the way to manipulate dirty virtual machines to make a benchmark look good. That's pretty funny. So I have other folks at I mean, are there other, time war stories? I again, I'd be because I'm curious about, like, what if we decide to go to, hopefully, all standard time and not all daylight time, what would be the IT ramifications of that?
+[Speaker 2] [48:50] Is that going to be and, also, 2038, actually, is another one. Adam, you made reference to 2038 earlier. Maybe it's worth describing that problem a little bit.
+[Speaker 1] [48:59] Yeah. I mean so, I mean, time for many for I mean, for a long time has been represented as, second since the UNIX epic, since January 1, 1970. Right? And as I recall, it was, for many systems, it was stored as assigned values. We have 31 bits of representation.
+[Speaker 1] [49:20] And That rolls over at some point in 2038, which feels like a much more common pathology than the Y2K problem. Now since then, the representation has gone to 64 bits or 63 bits or 64 bit side rather. But I think there are probably a lot of systems out there that are still susceptible. At least that's that's my gut.
+[Speaker 2] [49:45] Yeah. That's why I get
+[Speaker 7] [49:46] By the way, the the the y two k problem was a real problem on mainframes where the the the y the year day to day format was very, very common.
+[Speaker 2] [49:58] Well, yes. And I one of the didn't I didn't I didn't I
+[Speaker 5] [50:00] didn't I didn't share it here, like, in hardware.
+[Speaker 2] [50:05] Aaron, you're breaking up for me on that. I'm I'm not sure if you're breaking up for other Yeah. But that I guess I thought one of the
+[Speaker 5] [50:11] IBM chips had dedicated hardware that was in the 2-year dates. So the well, what you maybe were calling
+[Speaker 2] [50:21] and or maybe you heard this elsewhere, but the after y two k, I was meeting with a CIO of a big bank who had told me that 45% of their y two k problems came from a single platform. So you can imagine I was on the edge of my seat, and that was from the IBM 1401. So the b in the IBM 14 o one and 1410. There were only 2 digits. But to me, as I that was actually if it was an incredible moment for me because this, again, in 2000, this is a machine that is at this point, I'm an adult.
+[Speaker 2] [50:51] I'm a young adult, but I'm an adult. And the 1401 is a machine that was too old for my father to work on when he was undergraduate. So this is a a machine I mean, Tom, you probably never worked on 1401. Right? I mean, that is way too Right.
+[Speaker 2] [51:05] Right. Yeah. Yeah. Yeah. It's like
+[Speaker 7] [51:06] It is shipped in 1960, and
+[Speaker 2] [51:08] it Right.
+[Speaker 7] [51:09] So this is like But it was popular.
+[Speaker 2] [51:11] If it was very popular, but the fact that the software had outlived the hardware was a big moment for me personally of, like, wait a minute. The software is still running in production. And this is hardware that is moments after the big bang of software. And you begin to or software at this moment and most of the big bang of hardware. And you begin to realize that, like, wait a minute.
+[Speaker 2] [51:32] Our software is going to survive in perpetuity. This stuff is just gonna not it doesn't wear out. And so that is the and I think that stuff, I believe, just can't work with a 4 digit year. I think that they had to, like, actually rewrite it. I don't think that which is like it's, you know, 1401 software.
+[Speaker 2] [51:51] I think it's time to turn it off. It's time to rewrite it. Really?
+[Speaker 7] [51:56] So I resubmit ate. Do not resuscitate
+[Speaker 2] [51:59] exactly what old DNR put on me on the 1401 for sure. But I'm I'm sure there are other systems. So but so, yeah, Adam, the 20 38 problem feels like it's real. I mean
+[Speaker 1] [52:15] Yeah. I mean, I'm sure that y two k felt real. Furthermore, I mean, it's it definitely felt real. Furthermore, I'm sure there were real ramifications, but, I mean, it feels real and terrifying to me. But maybe that I'm, you know, by the time 2,038 rolls around in a surprisingly short amount of time suddenly, All sounds like a crazy gray beard, who's living in a time when 31 bits were enough to store anything.
+[Speaker 2] [52:44] Well, so why do you, but you remember the Y2K hysteria, though, surely. Do you I mean Yeah?
+[Speaker 1] [52:48] No. I remember the stereo for sure. Right? Like, don't fly on y two k. Like, peep you know, people, panic buying, you know, before it was popular.
+[Speaker 1] [52:58] Yeah.
+[Speaker 2] [52:58] Right. And I believe it was, China. I for China Airlines. China forced all of their because it stayed on, airline. All the execs for the airline had to be aloft at midnight on y two k.
+[Speaker 2] [53:16] That's awesome. We're just like, oh, you know what? That's a pretty good idea, actually.
+[Speaker 1] [53:21] Why? No
+[Speaker 2] [53:22] reason. Just No reason. Just Because it's totally safe to fly. Right? Because we're going to have no Y2K problems.
+[Speaker 2] [53:28] That's why you're going to be a lot. But I and there were I mean, the Matt's kinda Elm problem aside, there were very few actual problems. But I think there were very few actual problems because we did focus on it so much. I think it's part of the reason we so with 2038, like, 2038 is not that far away. I mean, Adam, we are much closer to 2038 now than we were when we started our careers.
+[Speaker 1] [53:53] We're closer to that than Right?
+[Speaker 2] [53:56] Yeah. Exactly. That's right.
+[Speaker 1] [53:57] That's pretty scary.
+[Speaker 2] [53:58] That is scary. G
+[Speaker 3] [54:01] p GPS also has it has a week number. I think it's a 10 a 10 bit week number, that rolls over every 20 or 40 years. And that's, you know, it's particularly funny because, when we've talked about GPS, you know, in these spaces before about, you know, how GPS really needs good time. I mean, it's like, you know, one of the 4 variables that a GPS receiver, solves for. So it's kind of weird to build GPS with, you know, a time rollover problem built into it.
+[Speaker 3] [54:36] But that was you know, it is occurred in 99 and 2019, and, I know that, you know, some airlines cancelled flights in 2019 because of it, and, you know, this kind of thing persists. Like, it's not just the 32 bit, you know, UNIX epoch counter problem. It's really it is occurs in many different places in many bits of software. I cannot really see that it's going to stop.
+[Speaker 1] [55:02] That that's so true. There, at least in, versions of Oracle up to 11, I believe. There was a transaction counter, that had a similar property. I think their epic was, like, sometime in 1980, probably, like, Larry Ellison's favourite day or something. And if it detected that you were effectively breaking the transaction speed limit, which meant that you were, like, not going to roll over the 60 before bit counter before 2020 or something like that, it would reboot the database.
+[Speaker 1] [55:34] Oh, God. So, some bugs in software that had at Delphi would, basically cause lots of transactions to pile up and, and break the speed limit, and they would have to kind of reboot and cool off the database until you had enough headroom on this, on this sort of diagonal line from 1980 to 2020 or
+[Speaker 2] [55:57] whatever it was. Oh, I assume that that that issue has been fixed. Would it Yeah.
+[Speaker 1] [56:02] It's been addressed. And at the time I remember it's like, well, why don't you just not have a, you know, 56 bit number or whatever it was? And it turned out to be baked in very, very deep in the internals of Oracle. I'm missing some of the details here, but it is took the significant rewrite, I think, in 11 or 12 to absolve, resolve that problem.
+[Speaker 2] [56:23] Well, and it is amazing when you have these bit width limitations get very baked into binaries. So assuming this GPS weak number rollover problems, right, obviously, I've not heard of it before. And you're right. There's one in 99 2019, and then the next one is actually in 2038. So 2038 is going to be What a year.
+[Speaker 2] [56:42] What a year. If you want to be like, oh, are you
+[Speaker 3] [56:44] Yes. What do you plan your retirement now? Exactly.
+[Speaker 2] [56:47] Well, this, this is I I I felt like my master plan was I would always joke that, like, I'm going to make my retirement in 20:30. I didn't know how. I don't know. You're going to rewrite my interest? What are we going to do?
+[Speaker 2] [56:56] We but it may be time to start get going on that. We got a start or maybe do we start with the hysteria now, Adam? Is that what we need to do to, like
+[Speaker 1] [57:04] We'll certainly start registering those domain names because, like, you know, you're you're welcome to those for the next 16 years or whatever.
+[Speaker 7] [57:11] 2038 is just not as catchy a name as YAK.
+[Speaker 2] [57:15] It's no. We
+[Speaker 1] [57:16] gotta work on the branding. That's right, Tom. Yeah.
+[Speaker 2] [57:18] It's its right. There's a right. Exactly. We have to, take something from, like, the vulnerability folks. You have to get it's all about the branding.
+[Speaker 2] [57:25] I, also feel that it happens in a super weird time of, toward the 2038 rollover happens at, like, you know, 3 in the morning on January 19th or whatever. It doesn't line up at all with the calendar. But that it'll be that one will be interesting because I do feel that it's going to be I'll be interested to see how much kind of cultural traction we have and how much people kind of model what their software is going to go do. And the one thing is that it is somewhat straightforward to actually test. But, Matt, yeah, what's up?
+[Speaker 4] [57:58] So I don't have a war story, but, I do, have a recommendation about a short story about the 2038, the 2038 problem. Have any of you guys read the story, epoch by Cory Doctorow? No. Oh, no. So it's, it's, the narrator.
+[Speaker 4] [58:19] And this story was written right around the sun, right around the time of the Oracle acquisition of Sun. And I think doctor o had a more optimistic outlook on that than what actually happened because in the story, the company is called Sun Oracle. And so the narrator is a system administrator who is working at Sun Oracle around the time of the epoch, rollover. And, and he is responsible for, looking after this AI that was developed by a research team a while back. And I won't spoil it, but let's just say that it involves the AI and a patch to fix all the 32-bit systems out there.
+[Speaker 2] [59:11] That's pretty great. It was according to this Hacker News comment I just found. Matt, it was commissioned by Mark Shuttleworth.
+[Speaker 4] [59:18] That's true.
+[Speaker 2] [59:19] Yeah. I'm not sure if that's his who are it? Hacker News coming, but it's yeah. Wow. Interesting.
+[Speaker 4] [59:24] By the way, I've got your branding for you. The Apocalypse.
+[Speaker 2] [59:28] That's pretty good. That's pretty good. Register the domain name. Yeah. Is it already registered?
+[Speaker 2] [59:33] That is actually a pretty good one. I mean, no. Like, only serious. Like, that is that. It's actually that's a that's a good one.
+[Speaker 2] [59:39] You know, I actually really wanted to read, the what is it? Dinghy has got some, like, I would read science fiction about software, but I'm not really into science fiction in general. So, like, I would like science fiction about software that does not involve, like, you know, civil wars and galaxies and, you know, starship cruisers. I know what I mean? I beat because I want to read what is it?
+[Speaker 2] [01:00:06] Is it a Fire in the Deep? No. No. There 's is an an a Walter Beige book that that has, like, software archaeology at its root that I'd be This core doctor of short story, Matt, may be right up my alley. I think that maybe if we can get to software science fiction without intergalactic warfare, I think that that's going to be
+[Speaker 1] [01:00:28] Brian, you know, I was thinking back, to some of the other Fish works workarounds and pedants that we were. Do you remember, we baked in some, so we had some like Iron like facilities in there for scheduling activities on the last day of the month, the second to last day of the month and the third to last day of the month? Do you remember the terms that we used for those?
+[Speaker 2] [01:00:50] Ultimate penultimate, and what was what would be the third?
+[Speaker 1] [01:00:53] It was anti-penultimate. That
+[Speaker 2] [01:00:56] is Which
+[Speaker 1] [01:00:57] which caused us to, like, resize that that dialogue box. But, like, once we had looked it up, I'm sure we could've could've seen it.
+[Speaker 2] [01:01:06] And is I can't tell if your tone is boasting because you did it or accusing because I did it. I I I No. No.
+[Speaker 1] [01:01:12] I don't know who did it, but I'm sure we were all equally pleased by it.
+[Speaker 2] [01:01:16] I'm sure we're all equally pleased by it. Yes. I'm sure I one of us did it, the other one wishes they did it. So
+[Speaker 1] [01:01:21] The the the most thing I will do is I remember in JavaScript at the time, at least I claim, that there was no facility for knowing what time zone the browser was in. In. And so the way we determined this was by taking that that time zone database Right. Compiling it into this function that would say, okay, if the year were, you know, 2017, and we were on this island, you know, then what time would it or if you 2017 at this time, then what time would you think it was? And we would play this back and forth to do this decision tree to infer what time zone the browser was in.
+[Speaker 1] [01:02:00] Even if it was in, you know, New York Standard Time or whatever.
+[Speaker 2] [01:02:03] Oh, that's right. That I think you're right. That's why we ended up doing the because you think you wrote that code. That's how we ended up database.
+[Speaker 1] [01:02:09] That that's right. We got into the time zone database because it was the only way we could think of to infer what the browser was in. And of course, maybe it was like some version of IE that we were working on. An an an a problem truly older than time.
+[Speaker 2] [01:02:23] And we and we were living in such sod houses. I mean, we were the because that was, like, very early. It's 2,006, 2,007,008. I mean, it's very early for writing things on the browser. And, I mean, obviously, Google and others had kinda paved the way here to a certain degree.
+[Speaker 2] [01:02:36] But, boy, discovering just how much was missing on that. Because I was just as you were mentioning JavaScript, I was reminded of the fact of the fact that January is the 0th month in JavaScript. It's like, come on. No. But that you're what are we doing here?
+[Speaker 2] [01:02:51] This is like the week start the week day the day starts at 1, if I recall correctly, speaking of time, I know we wanna, Adam, I know speaking of time, I know we wanna, I know we'd be mindful of the fact that you're on, on childcare duty at the moment.
+[Speaker 1] [01:03:11] So That's right. Such as this. Right? And we, we were gonna mention the top.
+[Speaker 2] [01:03:16] Oh, yeah. Right. Now
+[Speaker 1] [01:03:17] that, you know, our new year's resolution was to publish these recordings as a podcast. And here it is, only March, end of March, and we've done it. So I'll post the link in a sec. But the first season, the 2021 season is available on podcast, and it's everywhere except for Apple because Apple makes us sit in some penalty box for a week or something before they decide we have a real podcast. But, yeah, it's all going to be available, and we'll start to trickle out the 2022 season as well.
+[Speaker 2] [01:03:52] Yeah. And these have been it's been actually a lot of fun to go back to, some of these past recordings. It's been great to have everyone participating. So it's been fun to have that in a vector that, is going to be more readily consumable. Past recordings when, when driving.
+[Speaker 2] [01:04:08] I find it actually be, so I'm I'm going to be really excited to not have to use YouTube for that. So thank you very much for
+[Speaker 1] [01:04:15] Good. Yeah. Bright, you're you're our number one fan, and then I'm the number 2. But that's not that surprising. I agree.
+[Speaker 1] [01:04:19] That's
+[Speaker 2] [01:04:20] right. And a huge thanks to call by Derek who's who has been, done a ton of work on show notes, and the Adam, you've got the show notes also uploaded there as part of that in the podcast.
+[Speaker 1] [01:04:33] Yeah. So we'll keep on doing we'll do the live shows, get YouTube up. Once we have some show notes, then it'll make it over to the podcast. So just another step of the pipeline.
+[Speaker 2] [01:04:42] And then as long as we're teasing out, upcoming events, I think we wanna, we want to update folks on, we had our tails from the bring up lab in December. We want to update folks from our, bring up of the Switch, and, some of the other things we have been bringing up. We got I want to get the the w team back to do that. That was a lot of fun. We got a lot of got some new war stories that we want to make sure we tell around the campfire before we forget them, although some of them were unforgettable.
+[Speaker 2] [01:05:10] And then also want to have, Laura back. Folks may have seen, but, Laura Abed at Oxide found another vulnerability in the LPC 50 5, that was on Hacker News last week. Terrific blog entry from Laura, but I'd love to have her back to this.
+[Speaker 1] [01:05:25] Awesome stuff.
+[Speaker 2] [01:05:26] Yeah. Perfect stuff. So that we'll get we'll get have that upcoming over the next couple of weeks. As always, we've got other things that you want us to talk about. And your name is not Sam Alban.
+[Speaker 2] [01:05:34] Please don't troll us. The but always, always happy to pick up topics. Séjourné, this is a good one, I think. This will get to a lot of a lot of good stories here. So
+[Speaker 3] [01:05:43] Thanks. It was a lot of fun.
+[Speaker 2] [01:05:44] Yeah. Thanks, everyone. Take care. Thanks, everyone. See you next time.
