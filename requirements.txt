@@ -1,8 +1,10 @@
 yt-dlp
 requests
+beautifulsoup4
 openai-whisper
 transformers
 ollama
 google-api-python-client
 language-tool-python
 torch
+beautifulsoup4

@@ -92,7 +92,7 @@ def summarize_transcript(full_path, model):
 
 def summarize_transcripts(file_path, model="llama3.1:8b"):
     """Loops through all .txt files in the specified directory,
-    skipping already processed files and summary files."""\
+    skipping already processed files and summary files."""
     
     # Create a log file to track processed files
     log_path = os.path.join(file_path, LOG_FILENAME)
