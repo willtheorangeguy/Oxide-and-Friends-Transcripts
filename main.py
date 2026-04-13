@@ -9,10 +9,11 @@ import subprocess
 # List of numbered scripts in order
 scripts = [
     "1_download.py",
-    "2_transcripts.py",
-    "3_transcriber.py",
-    "4_summarizer.py",
-    "5_cleanup.py"
+    "2_tagger.py",
+    "3_transcripts.py",
+    "4_transcriber.py",
+    "5_summarizer.py",
+    "6_cleanup.py"
 ]
 
 # List of years
