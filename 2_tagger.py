@@ -7,7 +7,7 @@ import xml.etree.ElementTree as ET
 from mutagen.easyid3 import EasyID3
 from mutagen.id3 import ID3, TDRC, TRCK
 
-PODCAST_NAME = "On the Metal"
+PODCAST_NAME = "Oxide and Friends"
 
 # Log file name
 LOG_FILENAME = "tagged.log"
